@@ -273,6 +273,6 @@ Ready to transform your business processes with intelligent AI agents? I special
 - **Sales and marketing AI tools**
 - **Customer service optimization**
 
-[📧 Email me](mailto:noah@kixie.com) or [💼 Connect on LinkedIn](https://www.linkedin.com/in/noaheweiss)
+[💼 Connect on LinkedIn](https://www.linkedin.com/in/noaheweiss)
 
 *Currently working at Kixie, bringing AI-powered solutions to sales and customer engagement.*
